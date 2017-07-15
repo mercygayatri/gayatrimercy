@@ -1,0 +1,2 @@
+# gayatrimercy
+bismillah
